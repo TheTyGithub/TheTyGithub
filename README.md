@@ -1,0 +1,6 @@
+- Hola, I’m @TheTyGithub
+- I like coding :)
+- I’m currently learning random coding languages
+- I’m looking to collaborate on NOTHING :)
+- 
+- WAckY FACK: hamberber
